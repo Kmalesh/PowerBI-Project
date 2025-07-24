@@ -1,4 +1,5 @@
 **🔑 Key Highlights
+
 📊 Total Sales:
 $1.20M in overall sales.
 
